@@ -1,4 +1,4 @@
-# Tokyo Night Tmux
+# Rose Pine Tmux
 
 All natural pine, faux fur and a bit of soho vibes for the classy minimalist. [Rose Pine](https://rosepinetheme.com/)
 
